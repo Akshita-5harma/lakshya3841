@@ -1,6 +1,11 @@
 ### Hi there 👋
 
+### YOU CAN CONTRIBUTE HERE 
+### DON'T TAKE MY BIO SERIOUSLY
+### YOU CAN LEARN ANY LANGUAGES FROM HERE
+### FEEL FREE TO ASK QUESTIONS 
 
+### TWITTER --> @OfficialHamster
 
 - 🔭 I’m currently working on Nothing:hamster:
 - 🌱 I’m currently learning Nothing:hamster:
